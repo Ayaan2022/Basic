@@ -1,0 +1,2 @@
+# Basic
+Mxa kagalay
